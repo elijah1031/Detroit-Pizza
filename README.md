@@ -9,11 +9,10 @@ Serving:12
 Ingredents
      Dough
 1 Cup Warm Water
-1 .25 oz active dry yeast
-1 Teaspoon white sugar
-3 Teaspoons olive oil (divided)
-1 Teaspoon Kosher salt
+1 .25 oz active dry yeast 1 (8 ounce) https://www.amazon.com/Fleischmanns-Active-Yeast-Ounce-Count/dp/B0014CTFU4
+1 Teaspoon white sugar https://www.webstaurantstore.com/domino-pure-cane-granulated-sugar-25-lb/104SUGDM25.html?utm_source=Google&utm_medium=cpc&utm_campaign=GoogleShopping&gclid=EAIaIQobChMI9PCXw4bs5AIVOYNaBR3nvwlbEAYYASABEgL0q_D_BwE
 2 1/2 Cup bread flour
+1 Teaspoon kosher salt
 
 Sauce
 24oz Jar maranira sauce
